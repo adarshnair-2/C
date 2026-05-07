@@ -1,3 +1,1 @@
-# NKN leyyyyy
-
-Fuck off Dharsheeeel
+# C
